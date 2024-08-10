@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Analytics and Finance Analysis
 - 🌱 I’m currently learning Data Analytics
 - 💞️ I’m looking to collaborate on projects and Business intelligence
-- 📫 How to reach me emekao.official@gmail.com
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/chukwuemeka-ogbonna-56b07568/)
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I love soccer and support Barcelona FC.
 
